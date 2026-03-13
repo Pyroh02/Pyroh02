@@ -48,4 +48,11 @@ Whether you're looking for custom pixel art, interested in a commission, or just
 * **💬 Discord:** Pyroh02
 * **🐦 Twitter/X:** [@Pyroh02](https://x.com/Pyroh02)
 
+---
+
+## Portfolio
+
+you can view some of my work here!
+
+
 
